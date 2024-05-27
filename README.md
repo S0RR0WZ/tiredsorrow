@@ -1,15 +1,13 @@
-## ITS ME TIRED SORROW BITCH
+![Untitled12_20240527171153](https://github.com/tiredsorrow/tiredsorrow/assets/168008218/63d3e49a-3afe-4102-8e04-5814b61d08f3)
 
-![etho](https://github.com/tiredsorrow/tiredsorrow/assets/168008218/4d1d363f-75d7-4ef2-8c3c-aa16b5c6595a)
+  # ★ Sorrows intro !!![9b5823d7f5f28ddbd26a6dfb7b50f4b1-ezgif com-resize](https://github.com/tiredsorrow/tiredsorrow/assets/168008218/d33a7786-e566-4130-9986-24b956606f37)
 
-# livis is the best lalalalalla livis is co cool!!! follow their github!! @LIVISSKU
-
-![Screenshot 2024-05-27 4 26 54 PM](https://github.com/tiredsorrow/tiredsorrow/assets/168008218/62087109-a844-4e2e-a339-2f934b2793d6)
-
-![EHOTHOEHO-ezgif com-resize (2)](https://github.com/tiredsorrow/tiredsorrow/assets/168008218/5a266cca-5119-4919-9756-171b300f1fcb)
+![11ebecc7ef79b915f6ee2ca33a5b526a](https://github.com/tiredsorrow/tiredsorrow/assets/168008218/e07eb201-6206-428f-a3ce-96b0c911df78)
 
 
+## ★ Main Interests — ! ![9b5823d7f5f28ddbd26a6dfb7b50f4b1-ezgif com-resize (1)](https://github.com/tiredsorrow/tiredsorrow/assets/168008218/2b2b8697-301e-47ea-970d-a1f21e1a483e)
 
+— hermitcraft , life series , OG YHS , roblox myths , splatoon , fnaf , omori , SOS , +more !!
 
 <!---
 tiredsorrow/tiredsorrow is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
