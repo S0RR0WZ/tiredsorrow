@@ -6,7 +6,8 @@ livis is the best lalalalalla livis is co cool!!! follow their github!! @LIVISSK
 
 ![Screenshot 2024-05-27 4 26 54 PM](https://github.com/tiredsorrow/tiredsorrow/assets/168008218/62087109-a844-4e2e-a339-2f934b2793d6)
 
-![Uploading EHOTHOEHO.gif…]()
+![EHOTHOEHO-ezgif com-resize (2)](https://github.com/tiredsorrow/tiredsorrow/assets/168008218/5a266cca-5119-4919-9756-171b300f1fcb)
+
 
 
 
