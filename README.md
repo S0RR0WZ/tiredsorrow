@@ -3,7 +3,7 @@
 # ★ Sorrows intro !!![9b5823d7f5f28ddbd26a6dfb7b50f4b1-ezgif com-resize](https://github.com/tiredsorrow/tiredsorrow/assets/168008218/d33a7786-e566-4130-9986-24b956606f37)
 ### hhaaii!! you can call me sorrow or whatever skin i am wearing at the time!! ( ex — grian skin = grian ) 
 
-#### i am 14 and i am super big into mcyt !! if you wanna know more scroll down :D
+#### i am 15 ( ITS MY BDAY!!! ) and i am super big into mcyt !! if you wanna know more scroll down :D
 ![11ebecc7ef79b915f6ee2ca33a5b526a](https://github.com/tiredsorrow/tiredsorrow/assets/168008218/e07eb201-6206-428f-a3ce-96b0c911df78)
 
 
